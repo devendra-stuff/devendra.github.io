@@ -1,5 +1,3 @@
-Here you can say lots of fun things about your site.
+Hi, My name is Devendra Desai. I created this space to log my thoughts in my journey to space!
 
-Maybe say a some things about yourself.
-
-Or maybe what you plan to blog about.
+If you found yourself here, you share similar interests as me, Hit me up, lets talk. 
